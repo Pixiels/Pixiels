@@ -11,7 +11,9 @@ due to the AMOUNT of info / lore Pixiels has, its going to take quite a bit to a
 If you have any questions or even ideas , suggestions, or you just wanna talk / learn about Pixiels, either whisper me or Friend me on discord ! @ > Gothicmommyy 
 
 
-If you'd like to make a Pixiel you'll need the refs, lore, etc to do it correctly! thanks for reading :3 .
+If you'd like to be apart of adding new things to this species, you'll be added as a Co-helper , co-creator , depending on what amount you want to help / how much you help.  i will either link your socials for credit or put your name, etc . Pixiels WILL have a discord server soon , thats coming later. 
 
+
+## If you'd like to make a Pixiel you'll need the refs, lore, etc to do it correctly! , thanks for reading :3
 
 
