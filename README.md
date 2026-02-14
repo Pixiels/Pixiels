@@ -17,3 +17,6 @@ If you'd like to be apart of adding new things to this species, you'll be added 
 ## If you'd like to make a Pixiel you'll need the refs, lore, etc to do it correctly! , thanks for reading :3
 
 
+
+## Sorry for the wait, recently ive been SUPER busy, but ill eventually have some time to edit this ^_^ . 
+
